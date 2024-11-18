@@ -1,0 +1,6 @@
+- Hi my name is Jana Arafa😎
+- I love singing as a hobby of mine🎤
+- drama queen👑
+- forever love DESENDANTS🍎
+- And lastly Im not the one to under estimate.....
+- IM SO DEEP....EVEN DEEPER THAN YOU THINK!!!
